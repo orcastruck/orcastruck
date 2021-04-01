@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @orcastruck
+- 👀 I’m interested in video editing
+- 🌱 I’m currently learning Nothing
+- 📫 How to reach me on discord or Instagram
